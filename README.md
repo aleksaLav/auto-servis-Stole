@@ -1,3 +1,0 @@
-# auto-servis-Stole
-this site is intended for those who seek repair, vehicle registration as well as technical inspection
-ovo sam napravio cisto radi reda , ali sta cu kad ne moram...
